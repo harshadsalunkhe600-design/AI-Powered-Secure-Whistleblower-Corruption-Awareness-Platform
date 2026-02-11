@@ -2,7 +2,7 @@
 AI-Enhanced Corruption Reporting & Education Ecosystem
 
 Innovator: Harshad Salunkhe
-Duration: 8 Feb 2025 – 9 Feb 2026
+Duration: 05 Feb 2025 – 10 Feb 2026
 Project Link: https://truth-shield-light.lovable.app
 
 📌 Overview
